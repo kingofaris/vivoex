@@ -1,1 +1,4 @@
 # vivoex
+
+PASSWORD REPO VIVOEX 22122023:
+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
